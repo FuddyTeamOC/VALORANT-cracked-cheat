@@ -1,5 +1,6 @@
 # VALORANT-cracked-cheat
 PUBLIC CRACKED VALORANT CHEAT
+Those who do not know coding can download and use the cheat from the Releases section.
 
 Hi guys,
 
